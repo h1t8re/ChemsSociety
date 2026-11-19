@@ -23,8 +23,8 @@ The company is constituted from inception of companies containing; each; Busines
   * Doing research by Trinary, behind Binary..
   * BU Securing Network's..
   * BU Hendling Firewall which work with a ticketing system ..
-		OUr goal first is to do migration of Firewall's 
-  * A second company hendling the creation of pyramid's Shoon|Eachbe called EachbeShine..
+		OUr goal first is to do migration of Firewall's
+* A second company hendling the creation of pyramid's Shoon|Eachbe called EachbeShine..
 		It's with last discovery of science and of engineering, with technology competitting Alien's..
 
 Each Company have he's own boss wich is The principal MAnager or Court composed from a table of Manager's ..
